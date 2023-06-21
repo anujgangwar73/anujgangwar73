@@ -7,7 +7,7 @@
 
 - 🔭 I’m currently working on **Python and Django.**
 
-- 🌱 I’m currently learning **React JS, MySQl**
+- 🌱 I’m currently learning **React JS, MySQL**
 
 - 💬 Ask me about **Python,Django,HTML,CSS,Javascript**
 
