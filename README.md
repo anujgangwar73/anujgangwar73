@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **anujgangwar73@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1_7qPCzXfNZD0ox4OgVPP0ZW_gxNV0tEn/view?usp=drive_link](https://drive.google.com/file/d/1_7qPCzXfNZD0ox4OgVPP0ZW_gxNV0tEn/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1bzSZSJ_aaoiTR1sGNJ4kwD7DT9rTBRJ3/view?usp=drive_link](https://drive.google.com/file/d/1bzSZSJ_aaoiTR1sGNJ4kwD7DT9rTBRJ3/view?usp=drive_link)
 
 - ⚡ Fun fact **I love listening to songs in my free time**
 
